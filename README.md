@@ -1,2 +1,1 @@
-
-![progcom](https://github.com/vsafonkin/vsafonkin/assets/7628945/fefa4ba1-c4b7-4831-bf89-0ba5a466a4b3)
+![comm](https://github.com/vsafonkin/vsafonkin/assets/7628945/d4714271-430d-4afb-aa66-3c1014d9416c)
